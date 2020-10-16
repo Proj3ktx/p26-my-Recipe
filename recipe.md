@@ -1,0 +1,1 @@
+first use 3/4 cup of water and pour into a pot. Heat the water until boiling. After take your noodles and dump them in the water and let sit for 10 minutes. Stir ocasianally. Add spices and continue to stir fr an additional five minutes. Then eat. 
